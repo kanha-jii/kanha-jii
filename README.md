@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kunalsinghal0101@gmail.com**
 
-- ⚡ Fun fact **I think persons love working with me**
+- ⚡ Fun fact **I think Peoples love working with me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
